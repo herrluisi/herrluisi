@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 💬 Ask me about: everything (If I don't know I don't answer)
+- 💬 Ask me about: everything (If I don't know it - I won't answer)
 - 📫 How to reach me:
   - Discord: herrluisi 
 - ⚡ Fun fact: The coconut is not a nut
